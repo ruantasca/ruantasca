@@ -1,5 +1,5 @@
 # 💫 About Me:
-Olá, eu sou o Ruan tasca Henrique🤙<br>tenho 16 anos e estou atualmente estudando, minha escola é no Senai e estou fazendo técnico integrado em desenvolvimento de sistemas🖥️ 🖱️<br>Moro em Santa Catarina, São José, meus hobbies são: <br>-Desenhar;<br>-Esportes;<br>-Jogar nas horas vagas;<br>-Ler livro de Drama e ação (Dan Brown)<br>
+Olá, eu sou o Ruan tasca Henrique🤙<br>tenho 17 anos e estou atualmente estudando, minha escola é no Senai e estou fazendo técnico integrado em desenvolvimento de sistemas🖥️ 🖱️<br>Moro em Santa Catarina, São José, meus hobbies são: <br>-Desenhar;<br>-Esportes;<br>-Jogar nas horas vagas;<br>-Ler livro de Drama e ação (Dan Brown)<br>
 
 
 ## 🌐 Socials:
